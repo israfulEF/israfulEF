@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Research
 - 📫 How to reach me israfulalam19@gmail.com
 - 😄 Pronouns: HE
-- ⚡ Fun fact: Active and LAzy
+- ⚡ Fun fact: Active and Lazy
 
 <!---
 israfulEF/israfulEF is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
